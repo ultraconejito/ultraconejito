@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ultraconejito
+- 👀 I’m interested in ... learning about Hackintosh / Rizentosh
